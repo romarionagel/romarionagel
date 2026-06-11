@@ -9,4 +9,4 @@ _Meus interesses são:_
 ## Estudar 📘
 ## Jogos 🎮
 ## sk8 🛹
-"[messigay](<img width="220" height="331" alt="image" src="https://github.com/user-attachments/assets/36a9dfb5-37a6-41f2-9645-ca970e31f7f3" />)
+![(https://media.tenor.com/HNFFj2N_AEkAAAAm/leo-lionel.webp]
