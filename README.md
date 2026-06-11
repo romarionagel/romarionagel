@@ -9,4 +9,4 @@ _Meus interesses são:_
 ## Estudar 📘
 ## Jogos 🎮
 ## sk8 🛹
-![(https://media.tenor.com/HNFFj2N_AEkAAAAm/leo-lionel.webp]
+![(https://media.tenor.com/HNFFj2N_AEkAAAAm/leo-lionel.webp)]
