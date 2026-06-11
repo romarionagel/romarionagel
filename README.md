@@ -9,4 +9,4 @@ _Meus interesses são:_
 ## Estudar 📘
 ## Jogos 🎮
 ## sk8 🛹
-![(https://media.tenor.com/UaN4LOfQCmUAAAAM/messi-messi-netherlands.gif)]
+"[messigay](<img width="220" height="331" alt="image" src="https://github.com/user-attachments/assets/36a9dfb5-37a6-41f2-9645-ca970e31f7f3" />)
