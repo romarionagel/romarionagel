@@ -8,4 +8,4 @@ _Meus interesses são:_
 ## -Estudar 📘
 ## -Jogos 🎮
 ## -sk8 🛹
-![](https://tenor.com/pt-BR/view/waltwhite-breakingbad-say-my-name-gif-7259290)
+![](https://media.tenor.com/FBIkAQiT0d0AAAAM/waltwhite-breakingbad.gif)
