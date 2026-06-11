@@ -4,7 +4,7 @@
 ## -Gosto de estudar 📖
 
 _Meus interesses são:_
-## - Esportes 🎱 
+## -Esportes 🎱 
 ## -Estudar 📘
 ## -Jogos 🎮
 ## -sk8 🛹
